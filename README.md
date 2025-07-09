@@ -28,4 +28,4 @@
 立即体验！真正的“日本AV免费”看片平台，从此不再难找！
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/84032 ）</span>
